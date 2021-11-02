@@ -1,0 +1,1 @@
+# EDLC03_A_Takano
